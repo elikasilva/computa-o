@@ -1,1 +1,0 @@
-# computa-o
